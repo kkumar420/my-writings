@@ -1,3 +1,5 @@
+Date: May 1, 2026
+
 # Na De Dil Pardesi Nu: Love, Self and the Dissolution of the Ego
 ### A Punjabi folk song — revived in Dhurandhar — about love that demands the end of the self
 

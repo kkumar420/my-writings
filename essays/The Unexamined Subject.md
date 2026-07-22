@@ -1,3 +1,5 @@
+Date: April 23, 2026
+
 # The Unexamined Subject
 ### An inquiry into the nature of the “I” and the origin of psychological suffering
 
