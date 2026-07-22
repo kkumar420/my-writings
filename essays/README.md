@@ -23,6 +23,8 @@ At first glance, _Na De Dil Pardesi Nu_ appears to be a song about romantic long
 
 Through the poetry of Kabir, Meera, Guru Nanak, Guru Gobind Singh, Rumi, and Sufi symbolism, this essay explores the psychological meaning hidden within the song. The poison, the longing, the Jogan, the Nightingale and the Rose — all become metaphors for the dissolution of ego and the emergence of a radically different understanding of love.
 
+The first essay was theoretical and rather dry. This second one applies its mechanics and theory to life and show its extraordinary consequences.
+
 [**Read here**](https://substack.com/@kkumar420/note/p-196121609?utm_source=notes-share-action)
 
 ---
