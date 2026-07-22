@@ -11,6 +11,8 @@ Drawing upon insights from Vedanta, Buddhism, Sufism, Sikhism and modern masters
 
 [**Read here**](https://open.substack.com/pub/kkumar420/p/the-unexamined-subject)
 
+This forms the foundation of my philosophy, upon which I intend to build afterwards.
+
 ---
 
 ## Na De Dil Pardesi Nu: Love, Self, and the Dissolution of Ego
