@@ -1,4 +1,4 @@
-A collection of essays exploring philosophy, spirituality, literature, and the nature of the self.
+A collection of essays exploring the nature of the self, philosophy and spirituality.
 
 ---
 ## The Unexamined Subject

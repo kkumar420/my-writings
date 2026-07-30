@@ -1,4 +1,5 @@
 Date: May 1, 2026
+Originally posted on [Substack](https://open.substack.com/pub/kkumar420/p/na-de-dil-pardesi-nu-the-price-of)
 
 # Na De Dil Pardesi Nu: Love, Self and the Dissolution of the Ego
 ### A Punjabi folk song — revived in Dhurandhar — about love that demands the end of the self

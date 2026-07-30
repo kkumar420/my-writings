@@ -1,4 +1,5 @@
 Date: April 23, 2026
+Originally posted on [Substack](https://open.substack.com/pub/kkumar420/p/the-unexamined-subject)
 
 # The Unexamined Subject
 ### An inquiry into the nature of the “I” and the origin of psychological suffering

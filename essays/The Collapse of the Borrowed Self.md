@@ -1,4 +1,5 @@
 Date: June 11, 2026
+Originally posted on [Substack](https://open.substack.com/pub/kkumar420/p/the-collapse-of-the-borrowed-self)
 
 ![](https://substackcdn.com/image/fetch/$s_!4vrt!,w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fdf15179c-d38f-4317-9210-5dd6d02862ab_1663x946.png)
 
