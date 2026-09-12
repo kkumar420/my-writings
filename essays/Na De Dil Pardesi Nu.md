@@ -1,4 +1,4 @@
-Date: May 1, 2026
+Date: May 1, 2026<br>
 Originally posted on [Substack](https://open.substack.com/pub/kkumar420/p/na-de-dil-pardesi-nu-the-price-of)
 
 # Na De Dil Pardesi Nu: Love, Self and the Dissolution of the Ego

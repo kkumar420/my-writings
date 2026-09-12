@@ -1,4 +1,4 @@
-Date: April 23, 2026
+Date: April 23, 2026<br>
 Originally posted on [Substack](https://open.substack.com/pub/kkumar420/p/the-unexamined-subject)
 
 # The Unexamined Subject
